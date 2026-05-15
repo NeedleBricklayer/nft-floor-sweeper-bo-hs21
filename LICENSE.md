@@ -1,4 +1,4 @@
-# 
+# automatic NFT Scanner for nft floor sweeper bot | floor-price-tracking & NFT-sniping offers the most advanced nft floor sweeper bot, with floor-price-tracking and NFT-sniping.
 
 
 
